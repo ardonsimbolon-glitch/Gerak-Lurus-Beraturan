@@ -1,1 +1,0 @@
-# Gerak-Lurus-Beraturan
